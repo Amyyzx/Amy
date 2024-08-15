@@ -1,7 +1,7 @@
 **MEU PERFIL**☠︎︎
 # Meu nome é Vanessa
 **⋆♱✮♱⋆**
-- Aluna👩‍🎓
+- Aluna🐈‍⬛
 - Pensamento computacional 🕷
 - Programação 🦨
 
