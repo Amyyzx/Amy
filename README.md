@@ -1,9 +1,8 @@
-**MEU PERFIL**🌟
+**MEU PERFIL**☠︎︎
 # Meu nome é Vanessa
-
+**⋆♱✮♱⋆**
 - Aluna👩‍🎓
-- Pensamento computacional💮🐇
-- Programação🖱️
+- Pensamento computacional 🕷
+- Programação 🦨
 
-  **MEU CONTATO**
-  
+![](https://media.tenor.com/T8SBWIfKcFQAAAAi/maxwell-cat.gif)
